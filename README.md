@@ -1,0 +1,1 @@
+# skoropad.github.io
